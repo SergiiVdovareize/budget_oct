@@ -1,1 +1,1 @@
-https://auto.vdovareize.me
+https://oct.vdovareize.me
